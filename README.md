@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<!--
+
 **Kidshyst15 is my Xbox Username so I figured why not use it here!
 
 
@@ -13,4 +13,4 @@ himself or herself.
 - 📫 How to reach me: Malachi.bowling@gmail.com
 - 😄 Pronouns: Him.
 - ⚡ Fun fact: I am also an MMA Fighter. 
--->
+
